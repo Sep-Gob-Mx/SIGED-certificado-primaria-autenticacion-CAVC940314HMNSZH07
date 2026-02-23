@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-CAVC940314HMNSZH07
+CAVC940314HMNSZH07
